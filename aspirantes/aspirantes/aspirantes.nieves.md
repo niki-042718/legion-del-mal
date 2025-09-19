@@ -1,3 +1,3 @@
 ## solicitando
 
-Deseo ser parte de la legion 
+Deseo ser parte de la legion urgente
